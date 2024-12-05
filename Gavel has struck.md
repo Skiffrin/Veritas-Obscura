@@ -1,0 +1,1 @@
+It's been almost a week since I started working in the store. 
