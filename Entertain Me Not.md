@@ -103,7 +103,7 @@ I could apologize all I want, but I thought I didn't deserve forgiveness.
 
 The faint glow of the streetlight crept into the bedroom, spilling over the edges of the curtain. I’d left it slightly opened—partly for the light, partly for the sound of the city life outside. A way of distracting myself from the dreadful silence this house was well-acquainted with.
 
-I shuffled beneath the covers, begging for sleep to claim me, but my thoughts were like sand slipping through my fingers. Restless. Chaotic. Kay’s words still lingered in my head: _“Don’t disappear on me again.”_ They weren’t meant to hurt, but they did. Because they made me think of how much I’d already disappeared—from her, from myself, from the truth.
+I shuffled beneath the covers, begging for sleep to claim me, but my thoughts were like sand slipping through my fingers. Restless. Chaotic. Kay’s words still lingered in my head: *“Don’t disappear on me again.”* They weren’t meant to hurt, but they did. Because they made me think of how much I’d already disappeared—from her, from myself, from the truth.
 
 The truth. That was the word, wasn’t it?
 

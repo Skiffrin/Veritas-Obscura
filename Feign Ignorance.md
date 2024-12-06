@@ -29,7 +29,7 @@ I leaned back, light-headed. The room was too quiet, the laptop's hum too loud. 
 
 I started looking further, searching through the archives of our local court. My father's name, my mother's — nothing. On a whim, I entered mine.
 
-And there it was. A court record, sealed, hidden away by the ruling of the court. Why was that? What had taken place in that court that even the public wasn't allowed to know? *What about...me? Why couldn't I remember?*
+And there it was. A court case report, sealed, hidden away by the ruling of the court. Why was that? What had taken place in that court that even the public wasn't allowed to know? *What about...me? Why couldn't I remember?*
 
 Fueled by a strange, frantic energy, I began filling in the unseal request. The keys bent under my fingers, and minutes later, it was sent for review.
 
@@ -75,7 +75,7 @@ I only shrugged, unable to muster up a smile at the joke.
 
 Stocking shelves turned out to be mind-numbing, repetitive work—just what I needed. With a cart full of items and a clipboard in hand, I wandered up and down the aisles, matching products to their designated spots. My thoughts still strayed to the article, but the task at hand kept me grounded, at least for a while.
 
-But the court record... I couldn't keep my mind away from it. What was in it? Why did it have my name in it? What would I tell Kay—
+But the case report... I couldn't keep my mind away from it. What was in it? Why did it have my name in it? What would I tell Kay—
 
 The sharp clink of glass against metal startled me, pulling me from my spiraling thoughts. I froze, clutching the jar of pickles I rearranged God-knows-how-many-times, and looked up at the source of the sound.
 
@@ -108,7 +108,7 @@ I didn’t answer, pretending to be engrossed in re-organizing the pickle jars. 
 
 But as the silence stretched between us, I couldn’t help but feel a strange mix of emotions. Kay’s pushiness was grating, but it was also... grounding, in a way. She cared, and even if that scared me, it also meant I wasn’t as alone as I thought.
 
-The weight of the sealed court record lingered in the back of my mind, suffocating any sense of solace her concern might have offered.
+The weight of the sealed case report lingered in the back of my mind, suffocating any sense of solace her concern might have offered.
 
 The rest of the shift passed in a blur. I occasionally fended off lost customers or manned the register when Kay was somewhere...else.
 
@@ -123,7 +123,7 @@ I paced quietly along the streets; my boots were crunching the last of the leave
 
 By the time I unlocked the door to my apartment, my hands were shaking—not from the cold, but from something I couldn’t name. I didn’t even bother turning on the lights, the faint glow of the laptop on my desk pulling me in like a moth to a lamp.
 
-I hesitated before sitting down. It was still there, the article haunting me from the screen. I’d kept the court records tab open, the request screen grayed out with a bold *Submitted for Review* stamped across the top. I stared at it, willing it to change, as though my demand alone could speed up the process.
+I hesitated before sitting down. It was still there, the article haunting me from the screen. I’d kept the court case archive tab open, the request screen grayed out with a bold *Submitted for Review* stamped across the top. I stared at it, willing it to change, as though my demand alone could speed up the process.
 
 Hours ticked by. I forced myself to eat something, I am not even sure what I ate. The world outside my window darkened, and the noise of the city declined to faint echoes.
 
@@ -136,13 +136,13 @@ The chime of the email notification jolted me upright, my pulse quickening as I 
 ***
 
 **Subject:** Request Accepted  
-**Body:** Your request to unseal the court record associated with case #12-34791-X has been approved. Please visit your local courthouse with a valid photo ID to collect the document.
+**Body:** Your request to unseal the court case report associated with case #12-34791-X has been approved. Please visit your local courthouse with a valid photo ID to collect the document.
 
 ***
 
 I stared at the words, letting them sink in. My initial shock was replaced by a wave of disbelief.
 
-“Visit the courthouse?” I muttered to myself. That didn’t make sense. Court records like this were supposed to take weeks, even months, to unseal—assuming they got approved at all. And yet, here it was.
+“Visit the courthouse?” I muttered to myself. That didn’t make sense. Requests like this were supposed to take weeks, even months, to unseal—assuming they got approved at all. And yet, here it was.
 
 I reread the email twice, then a third time, as if doing so might uncover some hidden clause explaining how or why this had gone through so quickly. But there was nothing.
 
